@@ -1,3 +1,5 @@
-WILLIET FRIMPONG IS MY NAME. 
- FROM HQ SP SVC CMD
- BURMA CAMP
+# ABOUT MYSELF
+221103 Pte. Frimpong Williet is my name. I am 28years of age, dark in complexion,5.6feet tall. I come from Ejisu-krapa in Ashanti region but stays at Burma-camp in Greater Accra region. Born to Mr. and Mrs. Frimpong. Had my elementary school at Uaddara basic school in Kumasi 4BN and furthered my education at Airforce Basic school in Takoradi where I completed my JHS in 2013. I proceeded to Takoradi senior high school in 2013 where I studied business and completed in 2016. I am a Pentecostal. The last born of 3siblings to Mr. and Mrs. Frimpong.
+# MY MILITARY CAREER
+After completion of my senior high school in 2016 I applied for the Ghana armed forces recruitment but didn’t get the chance but never gave up. I then tried it again in 2021 and had the chance to join the Ghana army course 2 to Shai hills in 2023, 4th August. I completed my 6months training in February 2nd 2024. I went for my continues training at the 66-artillery regiment after 8months of training I came back to my mother unit which is HQ SP SVC CMD(CAMP).
+ I began my career as a professional solider of the Ghana armed forces and have gone for basic infantry platoon weapons 1-25 as my solider career course and was the third merit on the course. I am a very hardworking, friendly and a respectful soldier. I am a responsible soldier who is willing and open to learn new things beneficial to my life.my hubbies are reading, listening to worship songs. Becoming a prominent and profitable soldier is my ambition in life. With perseverance, dedications and determination, I know I will be able to achieve my goal.
